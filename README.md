@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @muhammad-ibrahim209
-- 👀 I’m interested in E-commeres, Art & carft, Learning Books, Dedsite Desgnier 
+- 👀 I’m interested in E-commeres, Art & carft, Learning Books, Wedsite Desgnier 
 - 🌱 I’m currently learning Artificial Intelligence
 - 📫 How to reach me im0092840@gmail.com
 - ⚡ Fun fact: GYM, FootBall 
